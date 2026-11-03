@@ -1,6 +1,5 @@
 <img width="750" height="422" alt="giphy_1" src="https://github.com/user-attachments/assets/8e14dbd5-a1e4-4aff-993b-6580ec3aa15d" />
 
-" open up your true eye bible, turn to page number 666, if you got a fuckin′ problem i'll call up the devil, bitch " 
 
  　　.　　she 　    /  　   her 　  　 　  　  　any
 <details>
